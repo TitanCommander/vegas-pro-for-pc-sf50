@@ -1,4 +1,4 @@
-# 
+# Vegas Pro for PC | Vegas Pro for Windows new Preset: audio-sync & green-screen-removal is the best Vegas Pro for PC | Vegas Pro for Windows preset, featuring audio-sync and
 
 
 
